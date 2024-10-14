@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Ghosty.
+- 👀 I’m interested in ICT and programming.
+- 🌱 I’m currently learning something.
+- 💞️ I’m looking to collaborate on a project to do everything privated.
+- 📫 How to reach me: By Discord.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: My PC is trash lol
