@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on a project to do everything privated.
 - 📫 How to reach me: By Discord.
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: My PC is trash lol
+- ⚡ Fun fact: My PC runs Windows 7.
